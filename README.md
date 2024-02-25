@@ -1,4 +1,4 @@
-## Olá, me chamo Kevelly
+## Olá, me chamo Kevelly Oliveira
 
 ##### 🤍 Sou uma programadora apaixonada por tecnologia, sempre em busca de novos desafios para aprimorar minhas habilidades.
 
